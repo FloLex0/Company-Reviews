@@ -1,0 +1,7 @@
+![1](https://github.com/FloLex0/Company-Reviews/assets/44678005/b2a61b8f-9075-4b5e-baa9-8d2a0b7310af)
+![2](https://github.com/FloLex0/Company-Reviews/assets/44678005/cb997224-3eac-461c-b071-4efe92ad0c50)
+![3](https://github.com/FloLex0/Company-Reviews/assets/44678005/8fd36ff0-0935-4bba-8335-0bd5e5a322f7)
+![4](https://github.com/FloLex0/Company-Reviews/assets/44678005/4302a635-7088-48ce-8c68-3118ae9b2e9e)
+![5](https://github.com/FloLex0/Company-Reviews/assets/44678005/8f58d289-c174-401e-ab86-1d0fdd25af09)
+![6](https://github.com/FloLex0/Company-Reviews/assets/44678005/d272e6d3-8313-46cd-849d-5981e33e8f8e)
+![7](https://github.com/FloLex0/Company-Reviews/assets/44678005/36af56b6-da41-43f9-a280-c6f8867d9207)
